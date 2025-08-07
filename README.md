@@ -7,7 +7,7 @@
   <img width="850" height="300" src="https://i.pinimg.com/1200x/70/27/8b/70278bfd4ed71660dabd6c23c1a920e1.jpg">
 welcome to my page!!
 
-![image](https://64.media.tumblr.com/fe04d14d4c027c00bc42acf8c513b277/16b8d3500d667811-aa/s1280x1920/52f4ab618bd1209643f3894602e43edd85bb4989.pnj)
+![image](https://64.media.tumblr.com/18c3f2d9b472d04612b31ca734b13eec/f96d6bc2cce4960f-04/s1280x1920/8ff46bc70a4b5ce96336f6a9165305c344ca70cf.pnj)
 
 <p align="center">
 KAngel ⋆ He/Him ⋆ 15
