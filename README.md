@@ -7,7 +7,7 @@
   <img width="850" height="300" src="https://i.pinimg.com/1200x/70/27/8b/70278bfd4ed71660dabd6c23c1a920e1.jpg">
 welcome to my page!!
 
-![image](file:///C:/Users/Girls/Downloads/image-removebg-preview%20-%202025-08-06T201116.720.png)
+![image](https://64.media.tumblr.com/fe04d14d4c027c00bc42acf8c513b277/16b8d3500d667811-aa/s1280x1920/52f4ab618bd1209643f3894602e43edd85bb4989.pnj)
 
 <p align="center">
 KAngel ⋆ He/Him ⋆ 15
