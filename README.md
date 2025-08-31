@@ -14,6 +14,6 @@ Grim ⋆ He/They ⋆ 15
 <p align="center">
 INFP ⋆ Enneagram type 9
 <p align="center">
-TAKEN ⋆ HTML coder 
+SINGLE ⋆ HTML coder 
 <p align="center">
 curently learning Javascript AND CSS!
